@@ -9,7 +9,7 @@ I am motivated and not hungry or sleepy.
  
 My current working patterns are ...
 •	Different, I like to work with people, but also alone while listening to music, eating and stretching
-•	I need breaks but I also don’t 
+•	I need breaks but I also don’t mind pulling through if needed or having an all-nighter if really needed, coffee is life
  
 I prefer communicating in these ways ...
 •	via zoom, slack, text messages anything, just specify the method and speak or write 
